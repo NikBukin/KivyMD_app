@@ -10,3 +10,7 @@
 Используемые данные фиктивны и сгенерированы случайно.
 
 
+
+
+https://github.com/user-attachments/assets/5bceb6ee-5c51-4afa-82f2-c88b86217458
+
